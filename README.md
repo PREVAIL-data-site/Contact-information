@@ -4,6 +4,6 @@ PREVAIL has presented as numerous conferences, including Pediatric Academic Soci
 
 If you are interested in learning more about the PREVAIL Cohort or are interested in collaborating, please contact the principal investigators by email:
 
-Ardythe Morrow: morrowa@ucmail.uc.edu 
+Ardythe Morrow: morrowa@ucmail.uc.edu  
 Mary Allen Staat: marystaat@cchmc.org  
 Daniel Payne: daniel.payne@cchmc.org
